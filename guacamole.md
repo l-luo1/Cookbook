@@ -6,6 +6,6 @@ Ingredients:
 
 Instructions:
 * mash avocados with fork 
-* mix mashed avocados with over ingredients 
+* mix mashed avocados with other ingredients 
 
 
